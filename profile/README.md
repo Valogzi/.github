@@ -7,6 +7,9 @@ Vogzcorp is a software and website production company with popular, recent and e
 
 ## Creates innovation
 
+Working with GangLife RP, V-Fiz, keops-ingenierie, SA procite and more. 
+If you want to work with us, contact us from valogzi.corporation@gmail.com
+
 ### Try to succeed
 
 Discover vogzcorp's Open Source projects ❤️ to create innovative and creative projects or create additions to our own projects.
